@@ -1,2 +1,1 @@
-# Didymus
-UTSA CHALLENGE 1
+#Didymus
