@@ -1,1 +1,1 @@
-#Didymus
+Didymus is your leading innovator in Social Solutions. Providing everything you need to get ahead in the growing social market. Such as, Search Engine Optimizatio(SEO), Online Reputation Management and Social Media Marketing.
